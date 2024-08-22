@@ -1,4 +1,4 @@
-👨‍💻 Josh Cunningham | 📧 mail@joshcunningham.dev jcunningham8@ua.edu | 📍 Tuscaloosa, AL | [GitHub: JoshCu](https://github.com/joshcunningham.dev)
+👨‍💻 Josh Cunningham | 📧 mail@joshcunningham.dev jcunningham8@ua.edu | 📍 Tuscaloosa, AL 
 
 ---
 
